@@ -1,0 +1,4 @@
+- 👋 Olá, eu sou a  @Brudesa
+- 👀 estou em Front End
+- 🌱 aprendendo novas linguagens.
+- 📫 Você pode entrar em contato comigo pelo email: brunagraziellap@gmail.com e pelo fone (31) 988248752
